@@ -1,0 +1,2 @@
+# blooket-script
+blooket hacks
